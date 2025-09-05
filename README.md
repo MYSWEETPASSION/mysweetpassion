@@ -3,7 +3,7 @@
 
 ![Image](https://github.com/user-attachments/assets/3381f805-db10-4d8d-92c5-f701a3fdee45)
 
-  ୨୧ ꒰ᵗʷⁱᶻ ⁻ ˢʰᵃᵈˢ꒱ ୨୧ ♪⁽^∇^*⁾  
+  ୨୧ ꒰ᵗʷⁱᶻ ⁻ ˢʰᵃᵈˢ ⁻ ᵃᵐʸ꒱ ୨୧ ♪⁽^∇^*⁾  
    
   ᵖʳᵉᵗᵗʸ ᶜᵘʳᵉ ⁻ ˢᵒⁿⁱᶜ ⁻ ˢᵖˡᵃᵗᵒᵒⁿ
   ![Image](https://github.com/user-attachments/assets/f49f30a9-4367-4153-b639-bccffee0634f)
