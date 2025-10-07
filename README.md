@@ -38,7 +38,7 @@
 
 
  
- **ⁱ'ᵐ ʳᵐᵏⁱⁿᵍ ᵐʸ ˢᵗʳᵃʷᵖᵃᵍᵉᵉ** 
+ **https://mysw33etpass10n.straw.page/** 
  
 ![꒰ ♡ ꒱ྀི Cure Wonderful   Cure Idol 🍥](https://github.com/user-attachments/assets/5a6ee59d-8483-4df4-947d-4694fb4ec784)
 
