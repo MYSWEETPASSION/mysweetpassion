@@ -15,6 +15,9 @@
 ![download (1)](https://github.com/user-attachments/assets/130a94fd-d30c-4757-895d-aa576c01febf)
 
 
+<img src="[https://i.imgur.com/ZWnhY9T.png](https://i.pinimg.com/1200x/87/79/99/87799972b0c89654dca621ac09f6869c.jpg)" width=30% height=30%>
+
+
 **ᵏⁱⁿˢ!**
 **ᵃᵐʸ ⁽ʰᵉᵃᵛʸᵏⁱⁿ⁾ ,ˢʰᵃᵈᵒʷ ⁽ʰᵉᵃᵛʸᵏⁱⁿ⁾ , ᵇˡᵃᶻᵉ, ˢᵒⁿⁱᶜ ⁽ʰᵉᵃᵛʸᵏⁱⁿ⁾, ˢʰⁱʰᵒ, ᵐᵃᶠᵘʸᵘ, ᶜᵃˡˡⁱᵉ , ᵏᵒᵐᵘᵍⁱ ⁽ʰᵉᵃᵛʸᵏⁱⁿ⁾, ᵐᵃʸᵘ ⁽ʰᵉᵃᵛʸ ᵏⁱⁿ⁾,ᵐᵏ, ᵐᵉʳᵒʳᵒⁿ ⁽ʰᵉᵃᵛʸᵏⁱⁿ⁾**
 
