@@ -1,4 +1,4 @@
-![aa960d53-a7e1-41dd-8751-6735b353c35b](https://github.com/user-attachments/assets/15fb8b44-66ae-45d5-bbbe-b166e0f13405) 
+![꒰ ♡ ꒱ྀི ⠀](https://github.com/user-attachments/assets/8a26b34b-a2ce-43d7-a866-1be5cbbac87b)
 
 
  **https://mysw33tpass10n.straw.page/** 
@@ -12,10 +12,8 @@
 
 **ⁱ ᵘˢᵉ ᵈⁱᶠᶠᵉʳᵉⁿᵗ ᵖʳⁿˢ ʷʰᵉⁿ ⁱᵐ ᶜᵒˢᵖˡᵃʸⁱⁿᵍ ᵈⁱᶠᶠᵉʳᵉⁿᵗ ᶜʰᵃʳᵃᶜᵗᵉʳˢ ˢᵒ ᵐᵃⁱⁿˡʸ ʰ/ʰ ᵒʳ ˢ/ʰ**
 
-![download (1)](https://github.com/user-attachments/assets/130a94fd-d30c-4757-895d-aa576c01febf)
 
-
-<img src="[https://i.imgur.com/ZWnhY9T.png](https://i.pinimg.com/1200x/87/79/99/87799972b0c89654dca621ac09f6869c.jpg)" width=30% height=30%>
+![2d3d678c-eb40-4c87-afbf-ba81326bf370](https://github.com/user-attachments/assets/8278f101-1303-4fe0-8cfc-74fc2075ed99)
 
 
 **ᵏⁱⁿˢ!**
@@ -29,7 +27,6 @@
 
 **ᴰᴺᴵ!!ᵇᵃˢⁱᶜ ᵈⁿⁱ, ᵖᵖˡ ᵘⁿᵈᵉʳ ¹⁵,  ᵖᵉᵒᵖˡᵉ ʷʰᵒ ᵘˢᵉ ᴬ.ᴵ./ ᵃⁱ ᵈᵘᵈᵉ ᵇʳᵒˢ, ᵗᵒˣⁱᶜ ᶠᵃⁿˢ ᵒᶠ ᵃ ˢʰⁱᵖ,  ᶻⁱᵒⁿⁱˢᵗˢ ᵃⁿᵈ ⁱˢˡᵃᵐᵒᵖʰᵒᵇᵉˢ, ˢʰᵃᵈᵃʳⁱᵃ ᶠᵃⁿˢ,  ˢᵃʳᵏ ᶠᵃⁿˢ,  ʷˣˢ ᶠᵃⁿˢ ᵁᴺᴸᴱˢˢ ᵁᴿ ᴬ ᶠᴿᴵᴱᴺᴰ ⁽ᴵ ʰᵃᵗᵉ ʷˣˢ ᶠᵃⁿˢ ʸᵃˡˡ ʳ ⁱⁿˢᵘᶠᶠᵉʳᵃᵇˡᵉ, ⁱᶠ ʸᵒᵘ ˢᵉˣᵘᵃˡⁱᶻᵉ ᵐʸ ᶠᵃᵛᵉˢ ᵒʳ ʲˢ ᵐᵃᵏᵉ ˢᵉˣᵘᵃˡ ʲᵒᵏᵉˢ ⁱⁿ ᵍᵉⁿᵉʳᵃˡ ᵘⁿˡᵉˢˢ ⁱᵏ ᵘ ᵛᵉʳʸ ʷᵉˡˡ,  ˢᵐⁱˡᵉ ᵖʳᵉᶜᵘʳᵉ ᶠᵃⁿˢ ʸᵃˡˡ ʳ ᵒⁿ ᵗʰⁱⁿ ⁱᶜᵉ**
 
-![2d3d678c-eb40-4c87-afbf-ba81326bf370](https://github.com/user-attachments/assets/8278f101-1303-4fe0-8cfc-74fc2075ed99)
 
 **ˢᵒᵐᵉ ᵒᶠ ᵐʸ ᶠᵃᵛᵒʳⁱᵗᵉ ᵈᵒˡˡ ˡⁱⁿᵉˢ ᵃʳᵉ ˡᵃˡᵃˡᵒᵒᵖˢⁱᵉˢ ᵒʳ ˡᵃˡᵃ⁻ᴼᵒᵖˢⁱᵉˢ, ˢʰᵒᵖᵏⁱⁿˢ, ᵐˡᵖ ᵍ³ & ᵍ⁴, ᵐᵒⁿˢᵗᵉʳ ʰⁱᵍʰ ᵈᵒˡˡˢ, ᵉᵛᵉʳ ᵃᶠᵗᵉʳ ʰⁱᵍʰ ᵈᵒˡˡˢ, ᵉᵗᶜ**
 
