@@ -1,4 +1,3 @@
-
 ![download (30)](https://github.com/user-attachments/assets/b56bddb6-54c3-4eab-8402-9fe0ff8a2369)
 
 **https://sunana.straw.page**
@@ -14,7 +13,6 @@
 **She/her or he/him (depends on the gender of the character I'm cosplaying or potraying myself as idk)**
 
 
-
 **BFYI!!**
 
 **I'm a very sensitive person and my mood fluctuates very frequently so I apologize for that in advance**
@@ -27,7 +25,6 @@
 **DNI:**
 
 **Homophobes, racists, transphobes, islamophobes, isreal supporters, sarklings/sark fans, if you sexualize any of my faves, proshippers/darkshippers, ai dudebros/ai users, if you age up characters for the sole purpose of sexualizing them, & glitter force defenders,**
-
 
 
 
