@@ -1,9 +1,9 @@
 
-![download (30)](https://github.com/user-attachments/assets/4d1562f7-b944-4640-91cf-23f0605304fb)
+![download (30)](https://github.com/user-attachments/assets/b56bddb6-54c3-4eab-8402-9fe0ff8a2369)
 
 **https://sunana.straw.page**
 
-**୨୧ ꒰setsuna, shads, meroron, amy (i use many names sorry!) ꒱ ୨୧**  
+**୨୧ ꒰setsuna, shads, meroron, or the name of the character im cosplaying) ꒱ ୨୧**  
 **multifandom; mainly sonic, precure and splatoon**
 
 **7teen,otherkin, magical girl, blk**
@@ -12,6 +12,8 @@
 **I'm a baby gal and scene kid !1!**
 
 **She/her or he/him (depends on the gender of the character I'm cosplaying or potraying myself as idk)**
+
+
 
 **BFYI!!**
 
