@@ -19,8 +19,9 @@
 
 **I can come across as very blunt or rude at times. If this happens then it's most likely not your fault and I'm probably just outta energy**
 
-**I heavily identify with my highest kins and my pony is usually one of them so yeah**
-**I only use slurs I can reclaim**
+**I heavily identify with my highest kins and i'm usually cosplaying them**
+
+**I ONLY use slurs I can reclaim**
 
 **DNI:**
 
