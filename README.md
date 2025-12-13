@@ -24,9 +24,8 @@
 
 **DNI:**
 
-**Homophobes, racists, transphobes, islamophobes, isreal supporters, sarklings/sark fans, if you sexualize any of my faves, proshippers/darkshippers, ai dudebros/ai users, if you age up characters for the sole purpose of sexualizing them, & glitter force defenders,**
+**Homophobes, racists, transphobes, islamophobes, isreal supporters,shadria shippers sarklings/sark fans, if you sexualize any of my faves, proshippers/darkshippers, ai dudebros/ai users, if you age up characters for the sole purpose of sexualizing them, & glitter force defenders,**
 
 
-
-![REI SE-LA🧸聖羅零 (@seila_ilust) on X](https://github.com/user-attachments/assets/60b93f31-e2ce-499a-85f2-b38663055c5e)
+![download (36)](https://github.com/user-attachments/assets/6253948d-de95-4450-9eb8-f5134b38c4e2)
 
