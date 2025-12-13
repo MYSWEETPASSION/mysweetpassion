@@ -5,7 +5,7 @@
 **୨୧ ꒰setsuna, shads, meroron, or the name of the character im cosplaying) ꒱ ୨୧**  
 **multifandom; mainly sonic, precure and splatoon**
 
-**7teen,otherkin, magical girl, blk**
+**7teen,otherkin, magical girl, intj-t, blk**
 **Digital/Traditional artist , voice impressionist, writer**
 
 **I'm a baby gal and scene kid !1!**
