@@ -1,6 +1,6 @@
 ![download (30)](https://github.com/user-attachments/assets/b56bddb6-54c3-4eab-8402-9fe0ff8a2369)
 
-**https://sunana.straw.page** (i'll actually make a strawpage soon trust)
+**https://herogardenlalala.straw.page** new strawpage :p
 
 **୨୧ ꒰setsuna, shads, meroron, or the name of the character im cosplaying ꒱ ୨୧**  
 **multifandom; mainly sonic, precure and splatoon**
@@ -28,5 +28,6 @@
 
 **Homophobes, racists, transphobes, islamophobes, isreal supporters,shadria shippers sarklings/sark fans, People under 15, if you sexualize any of my faves, proshippers/darkshippers, ai dudebros/ai users, if you age up characters for the sole purpose of sexualizing them, & glitter force defenders,**
 
+I made this lalala 
 
-![i think they are gonna take me to the mental hospital soon pinkie pie](https://github.com/user-attachments/assets/0fad515a-caea-4fee-b8ec-c36c8226005a)
+![1641](https://github.com/user-attachments/assets/ab411a7e-168d-4bd1-a012-e9568515dc17)
