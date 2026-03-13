@@ -23,4 +23,4 @@ I ONLY use slurs I can reclaim
 DNI:
 basic dni,  isreal supporters,shadria shippers sarklings, People under 15, ai dudebros, if you age up characters for the sole purpose of sexualizing them, & glitter force fans
 
-<img width="735" height="522" alt="6238" src="https://github.com/user-attachments/assets/ffff7f0c-30f8-4aa3-a5dd-fd1d10acdd1e" />
+<img width="736" height="557" alt="6251" src="https://github.com/user-attachments/assets/4992a0be-29e8-4050-99f7-619dc9a39de6" />
