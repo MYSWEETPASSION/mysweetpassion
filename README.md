@@ -3,7 +3,7 @@ https://herogardenlalala.straw.page/
 ୨୧ ꒰setsuna ; shads (i also go by other names) ꒱ ୨୧  
 multifandom; mainly sonic, precure and splatoon
 
-7teen,otherkin, magical girl, intj-t, blk
+7teen,otherkin, magical girl, intj-t, black
 
 Digital/Traditional artist , voice impressionist, writer
 
