@@ -7,7 +7,7 @@ multifandom; mainly sonic, precure and splatoon
 
 Digital/Traditional artist , voice impressionist, writer
 
-Im a gyaru & scene kid
+Im a gyaru & scene kid!! also im online whenever and Im not consistent lmao
 
 
 BFYI!!
