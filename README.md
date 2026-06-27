@@ -11,6 +11,7 @@ Im a gyaru & scene kid!! also im online whenever and Im not consistent lmao
 
 
 BFYI!!
+I'm rarely active so im sorry if i don't chat with you for awhile (i still think you're awesome)
 
 i block freely idk gng
 
