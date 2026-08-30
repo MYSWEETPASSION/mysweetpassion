@@ -13,11 +13,6 @@ I'm rarely active so im sorry if i don't chat with you for awhile (i still think
 
 I most likely won't be active a whole bunch since I'm busy with my art acc and starting uni in the fall :>
 
-i block freely idk gng
-
-I heavily identify with my highest kins and i'm usually cosplaying them
-
-I ONLY use slurs I can reclaim
 
 DNI:
 basic dni,  isreal supporters,shadria shippers sarklings, People under 16, ai dudebros, if you age up characters for the sole purpose of sexualizing them, & glitter force fans
