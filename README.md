@@ -1,9 +1,9 @@
 https://herogardenlalala.straw.page/
 
-୨୧ ꒰setsuna ; shads (may go by other names) ꒱ ୨୧  
+୨୧ ꒰setsuna꒱ ୨୧  
 multifandom; mainly sonic, precure and splatoon
 
-18 ,otherkin, magical girl, intj-t, black
+18, magical girl, intj-t, black 🇬🇾 🇸🇴
 
 Digital/Traditional artist , voice impressionist, writer
 
@@ -16,8 +16,6 @@ I'm rarely active so im sorry if i don't chat with you for awhile (i still think
 I most likely won't be active a whole bunch since I'm busy with my art acc and starting uni in the fall :>
 
 i block freely idk gng
-
-I can be blunt at times or just may not have energy.If i seem out of it, its not ur fault
 
 I heavily identify with my highest kins and i'm usually cosplaying them
 
