@@ -1,9 +1,9 @@
 ୨୧ ꒰setsuna꒱ ୨୧  
 multifandom; mainly sonic, precure and splatoon
 
-18, magical girl, intj-t, black 🇬🇾 🇸🇴
+18, magical girl, intj-t, black
 
-Digital/Traditional artist , voice impressionist, writer
+Digital/Traditional artist , voice impressionist
 
 Im a gyaru & scene kid!! also im online whenever and Im not consistent lmao
 
