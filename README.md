@@ -1,5 +1,3 @@
-https://herogardenlalala.straw.page/
-
 ୨୧ ꒰setsuna꒱ ୨୧  
 multifandom; mainly sonic, precure and splatoon
 
