@@ -1,7 +1,7 @@
 https://herogardenlalala.straw.page/
 
 ୨୧ ꒰setsuna꒱ ୨୧  
-multifandom; mainly sonic, precure and splatoon 
+multifandom; mainly sonic, precure and splatoon
 
 18, magical girl, intj-t, black 🇬🇾 🇸🇴
 
