@@ -11,7 +11,7 @@ Im a gyaru & scene kid!! also im online whenever and Im not consistent lmao
 BFYI!!
 I'm rarely active so im sorry if i don't chat with you for awhile (i still think you're awesome)
 
-I most likely won't be active a whole bunch since I'm busy with my art acc and starting uni in the fall :>
+I most likely won't be active a whole bunch since I'm busy with uni and my art acc
 
 
 DNI:
